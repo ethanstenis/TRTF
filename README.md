@@ -1,2 +1,2 @@
 # TRTF
-Texas Retired Teachers Association
+Texas Retired Teachers Foundation
